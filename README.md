@@ -1,2 +1,19 @@
 # project_game_trend
-project_game_trend
+
+![1](https://user-images.githubusercontent.com/76425748/145766645-6e4822b1-4139-436d-945f-46a25981bb72.jpg)
+![2](https://user-images.githubusercontent.com/76425748/145766647-0c734f77-cdbe-4d81-8172-e71a80a778e1.jpg)
+![3](https://user-images.githubusercontent.com/76425748/145766651-73be9616-3f0f-4641-8f71-96bf6301ac6d.jpg)
+![4](https://user-images.githubusercontent.com/76425748/145766653-1f8d97ab-6c87-408d-a7d8-e9658601577d.jpg)
+![5](https://user-images.githubusercontent.com/76425748/145766655-27c5f184-d84c-4335-83a2-2f0b7946e3d3.jpg)
+![6](https://user-images.githubusercontent.com/76425748/145766659-e3bb8a16-a4ff-4ad3-b745-622ca744e151.jpg)
+![7](https://user-images.githubusercontent.com/76425748/145766662-bfe88dec-0299-4db5-877e-16b448cf07b5.jpg)
+![8](https://user-images.githubusercontent.com/76425748/145766666-3b2e7b27-159c-4827-a282-751fd40ad040.jpg)
+![9](https://user-images.githubusercontent.com/76425748/145766673-ccc3af1c-ab99-4d39-8a24-f2e92798b301.jpg)
+![10](https://user-images.githubusercontent.com/76425748/145766679-8ec8b937-dfd1-479e-adc7-64369663a92b.jpg)
+![11](https://user-images.githubusercontent.com/76425748/145766682-2668c4b3-fefa-4a04-a229-ca12e7b9b88e.jpg)
+![12](https://user-images.githubusercontent.com/76425748/145766688-e496d595-bffb-446f-bd4f-711c7b292949.jpg)
+![13](https://user-images.githubusercontent.com/76425748/145766692-77445eb6-6943-4bf3-b570-4c17d6ff6745.jpg)
+![14](https://user-images.githubusercontent.com/76425748/145766699-75e97c0c-2041-45cc-b675-adb170ee08a7.jpg)
+![15](https://user-images.githubusercontent.com/76425748/145766708-a3161e79-e609-4a8c-8b23-66e1020c646f.jpg)
+![16](https://user-images.githubusercontent.com/76425748/145766710-936c1652-fb35-4f04-a24d-07cb32bba968.jpg)
+![17](https://user-images.githubusercontent.com/76425748/145766713-896d0f0c-47f1-475c-96af-fb1fc5166a16.jpg)
